@@ -1,3 +1,3 @@
 # Learn2GrowUp
-## yobo learning record
-everyday make a little progress
+## Yobo learning record
+Everyday make a little progress
